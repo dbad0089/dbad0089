@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dbad0089
-- 👀 I’m interested in ...how things work
+- 👀 I’m interested in ...mental health
 - 🌱 I’m currently learning ...problem solutions
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...dmad0089@gmail.com
